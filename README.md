@@ -22,4 +22,4 @@ Project is: _on-going_
 
 
 ## Contact
-Created by [@iamthatnikah](https://www.twitter.com/) ~ Nii Armah Aryeetey &amp; [@iamthatn](https://www.twitter.com/) ~ Godfred Ayer-Teye &copy; - feel free to contact us!
+Created by [@iamthatnikah](https://www.twitter.com/) ~ Nii Armah Aryeetey &amp; [@ayergodfred4222](https://www.twitter.com/) ~ Godfred Ayer-Teye &copy; - feel free to contact us!
